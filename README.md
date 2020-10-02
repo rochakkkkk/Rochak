@@ -1,2 +1,2 @@
 # Rochak
-i am a slow learner
+You're fast learner.
